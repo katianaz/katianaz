@@ -1,3 +1,6 @@
+<img align="left" height="100" src="https://media.giphy.com/media/ao9DUiTKH60XS/giphy.gif"/>
+
+
 ### Hi there 👋
 
 # Katiana Zeitz
